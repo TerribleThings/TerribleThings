@@ -9,7 +9,7 @@
 
 <div align="center"
   
-[atabook !](https://mintszlla.atabook.org)‎ ‎ ‎ ‎ ‎ ‎ ‎ [twitter !](https://x.com/imsl3epdeprived) ‎ ‎ ‎ ‎  ‎ [strawpage !](https://vyouss.straw.page)
+[atabook !](https://mintszlla.atabook.org)‎ ‎ ‎ ‎ ‎ ‎ ‎ [twitter !](https://x.com/imsl3epdeprived) ‎ ‎ ‎ ‎  ‎ [strawpage !](https://binggo.straw.page)
 
 <div align="center">
 
